@@ -2,7 +2,7 @@
 - 💀 I'm an antisocial prick and a grumpy old man.
 - 🪪 An Original Florida Man™
 - 🟰 An Equal Opportunity Offender™.
-- 🇺🇸 Love my country, not my government. Moderate, blue state.
+- 🇺🇸 Moderate. Love my country, not my government.
 - 👞 I'm an old geezer, I have shoes your age.
 - 🚸 I probably have kids your age, too.
 - 🖖 I am a *Star Trek* fan. LLAP.
