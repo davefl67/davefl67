@@ -2,6 +2,7 @@
 - 💀 I'm an antisocial prick and a grumpy old man.
 - 🪪 An Original Florida Man™.
 - 🟰 An Equal Opportunity Offender™.
+- 💊 Original poster child for **ADHD**
 - 🇺🇸 Moderate. Love my country, not my government.
 - 👞 I'm an old geezer, I have shoes your age.
 - 🚸 I probably have kids your age, too.
