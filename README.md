@@ -17,7 +17,7 @@
 - 🥓 I am also interested in bacon. Always come out of my office for bacon.
 - 🌱 I’m currently learning how to code my own shit.
 - 💞️ I’m looking to collaborate on nothing right now.
-- 📫 How to reach me? Don't. "Don't call us, we'll call you."
+- 📫 How to reach me? *"Don't call us, we'll call you."*
 
 <!---
 davefl67/davefl67 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
