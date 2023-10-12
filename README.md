@@ -6,7 +6,10 @@
 - 👞 I'm an old geezer, I have shoes your age.
 - 🚸 I probably have kids your age, too.
 - 🖖 I am a *Star Trek* fan. LLAP.
-- 🎮 I'm known on Twitch as **Dave_Gaffer**
+- 🎮 **Gaming Handles**
+  - [Second Life:](https://my.secondlife.com/davedorm.gaffer) "DaveDorm Gaffer" *(Yes, it's a stupid name!)*
+  - Most everywhere, it's just "Dave Gaffer"
+  - [Twitch:](https://www.twitch.tv/dave_gaffer) dave_gaffer
 - 😠 You kids get off my lawn!
 - 🎙️ Amateur Radio KD4INR (since 1992).
 - 👀 I’m interested in being left alone. And bacon 🥓.
