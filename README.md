@@ -7,7 +7,7 @@
 - 🚸 I probably have kids your age, too.
 - 🖖 I am a *Star Trek* fan. LLAP.
 - 🎮 **Gaming Handles**
-  - [Second Life:](https://my.secondlife.com/davedorm.gaffer) "DaveDorm Gaffer" *(Yes, it's a stupid name!)*
+  - [Second Life:](https://my.secondlife.com/davedorm.gaffer) davedorm.gaffer *(Yes, it's a stupid name!)*
   - Most everywhere, it's just "Dave Gaffer"
   - [Twitch:](https://www.twitch.tv/dave_gaffer) dave_gaffer
 - 😠 You kids get off my lawn!
